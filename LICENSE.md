@@ -1,4 +1,4 @@
-# 
+# advanced 7-Zip for PC | 7-Zip for Windows Script | cloud-integration + drag-and-drop offers the most advanced 7-Zip for PC | 7-Zip for Windows script, with cloud-integration and
 
 
 
